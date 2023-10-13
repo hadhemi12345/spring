@@ -1,0 +1,1 @@
+# 5sae6_wamya_station-ski
